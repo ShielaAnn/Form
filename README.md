@@ -29,6 +29,9 @@ Women4it
 Bejob
 * []()https://www.bejob.com/
 
+Eduardo Fierro
+* []()https://eduardofierro.pro/
+
 
 ### Fails ⚠️
 
