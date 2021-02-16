@@ -22,6 +22,12 @@ Shiela Ann Junio
 
 * []()https://www.linkedin.com/in/shiela-ann-junio-81589b206/
 
+### Acknowledgement 
+Women4it
+* []()https://women4it.eu/
+Bejob
+* []()https://www.bejob.com/
+
 
 ### Fails ⚠️
 
